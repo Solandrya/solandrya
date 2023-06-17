@@ -1,4 +1,5 @@
-### Oi, meu nome é Solandrya, mas sinta-se a vontade para me chamar de Sol :sun_with_face: 
+### Oi, meu nome é Solandrya, 
+### mas sinta-se a vontade para me chamar de Sol :sun_with_face: 
 *Hi, my name is Solandrya but feel free to call me Sol* :sun_with_face:
 
 Esse perfil tem a finalidade de documentar os meus estudos como desenvolvedora, fique a vontade para explorá-lo e divirta-se :sun_with_face:.

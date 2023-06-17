@@ -2,10 +2,10 @@
 *Hi, my name is Solandrya but feel free to call me Sol* :sun_with_face:
 
 Esse perfil tem a finalidade de documentar os meus estudos como desenvolvedora, fique a vontade para explorá-lo e divirta-se :sun_with_face:.
-Qualquer dúvida você pode me contatar através do meu [Linkedin](https://www.linkedin.com/in/solandrya-polaro-de-la-roque-335386136/?originalSubdomain=br) - Linkedin
+Qualquer dúvida você pode me contatar através do meu [Linkedin](https://www.linkedin.com/in/solandrya-polaro-de-la-roque-335386136/?originalSubdomain=br) 
 
 *This profile was built with the intended to document my studies as a developer, feel free to explore it and have fun. :sun_with_face:
-Any questions you can contact me through my* [Linkedin](https://www.linkedin.com/in/solandrya-polaro-de-la-roque-335386136/?originalSubdomain=br) - Linkedin
+Any questions you can contact me through my* [Linkedin](https://www.linkedin.com/in/solandrya-polaro-de-la-roque-335386136/?originalSubdomain=br) 
 
 
 ### Main Skills  

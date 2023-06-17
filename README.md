@@ -1,4 +1,4 @@
-### Oi, meu nome é Solandrya, 
+### Oi, eu sou a Solandrya, 
 ### mas sinta-se a vontade para me chamar de Sol :sun_with_face: 
 *Hi, my name is Solandrya but feel free to call me Sol* :sun_with_face:
 
